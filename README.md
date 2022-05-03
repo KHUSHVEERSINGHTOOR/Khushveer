@@ -2,4 +2,4 @@
 i like lifting
 i like playing games
 i like running.
-i like 
+i like studying.
