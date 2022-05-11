@@ -7,3 +7,4 @@ i play fifa.
 i like running.
 i like studying.
 i like listening music.
+Today is Wednesday we dont need to wear uniform.
